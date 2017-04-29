@@ -1,0 +1,2 @@
+# Vorago
+IP adresy
